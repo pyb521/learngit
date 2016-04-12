@@ -3,3 +3,7 @@ Git is free software.
 
 i begin use.
 when will you?
+
+i love ei nido!
+
+i love coron!
